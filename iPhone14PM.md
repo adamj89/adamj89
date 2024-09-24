@@ -1,6 +1,6 @@
 Hi folks
 
-I'm selling my iPhone 14 Pro Max 256gb for around £650 (ono).
+I'm selling my iPhone 14 Pro Max 256gb for around **£650** (ono).
 
 First of all, the phone is in great condition with no scratches or scrapes, having been kept in a protective case and with a screen protector for the whole time. 
 As you can see on [Music Magpie](https://www.musicmagpie.co.uk/store/products/apple-iphone-14-pro-max-256gb-deep-purple-unlocked-02a9fbed-0125-4f8c-9dd1-bd70b7134cbe/) the current selling price for a second hand phone of this type is £700-800. 
