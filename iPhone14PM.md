@@ -11,6 +11,7 @@ All of the tech specs are [here](https://www.gsmarena.com/apple_iphone_14_pro_ma
 A few points.
 
 - The colour of the phone is 'Deep Purple' - a really pretty colour. Shame they don't produce this one any more.
+- Very light tarnishing of the metal on the left edge of the phone - couldn't really capture this in the images as it is very minor.
 - The original box is included, as is a brand-new Apple USB-C to lightning cable
 - Battery Health is currently 86%
 - I've just attached a new screen protector and will include a protective case
