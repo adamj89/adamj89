@@ -1,8 +1,19 @@
 Hi folks
 
-I'm selling my iPhone 14 Pro Max 256gb. 
+I'm selling my iPhone 14 Pro Max 256gb for around £650 (ono).
 
 First of all, the phone is in pristine condition with no signs of wear, having been kept in a protective case and with a screen protector for the whole time. 
+As you can see on [Music Magpie](https://www.musicmagpie.co.uk/store/products/apple-iphone-14-pro-max-256gb-deep-purple-unlocked-02a9fbed-0125-4f8c-9dd1-bd70b7134cbe/) the current selling price for a second hand phone of this type is £700-800. 
+
+All of the tech specs are [here](https://www.gsmarena.com/apple_iphone_14_pro_max-11773.php)
+
+
+A few points.
+
+- The colour of the phone is 'Deep Purple' - a really pretty colour. Shame they don't produce this one any more.
+- The original box is included, as is a brand-new Apple USB-C to lightning cable
+- Battery Health is currently 86%
+- I've just attached a new screen protector and will include a protective case
 
 
 ![WhatsApp Image 2024-09-24 at 18 36 56_e5f9fc54](https://github.com/user-attachments/assets/29ab4778-d41b-4767-9308-9f05c37ea42d)
