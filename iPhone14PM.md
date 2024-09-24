@@ -14,6 +14,7 @@ A few points.
 - The original box is included, as is a brand-new Apple USB-C to lightning cable
 - Battery Health is currently 86%
 - I've just attached a new screen protector and will include a protective case
+- **AA folks** - I can bring this to the Away Day. 
 
 
 ![WhatsApp Image 2024-09-24 at 18 36 56_e5f9fc54](https://github.com/user-attachments/assets/29ab4778-d41b-4767-9308-9f05c37ea42d)
